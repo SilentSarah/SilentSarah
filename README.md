@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐ Interested in everything related to technology, especially hardware and emulation!.<br>⭐ Currently studying computer science at 1337 MED - AKA 42 Morocco - Tetouan.
+⭐ Interested in anything related to technology, especially hardware and emulation!.<br>⭐ Currently studying computer science at 1337 MED - AKA 42 Morocco - Tetouan.
 
 
 ## 🌐 Socials:
